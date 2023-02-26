@@ -3,6 +3,8 @@
 
 GO THROUGH THE READ ME INSTRUCTIONS FILE 
 
+You can also ask any doubts there or to me (Sanjon Rion - 9995038572)
+
 
 
 
